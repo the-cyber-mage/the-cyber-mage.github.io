@@ -1,1 +1,1 @@
-# thecybermage.github.io
+# the-cyber-mage.github.io
